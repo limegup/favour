@@ -6,4 +6,4 @@ Is there a way to contact you somehow?
 
 -- 
 greets limegup,  
-limegup@daleloan.com
+limegup@gmail.com
